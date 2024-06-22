@@ -16,11 +16,11 @@
 
 - 📫 How to reach me **vk.malviya2002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_iT-FGQV_-ORqyqypWAQceb6gHEI9Ocv/view?usp=sharing](https://drive.google.com/file/d/1_iT-FGQV_-ORqyqypWAQceb6gHEI9Ocv/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1RZ1Bh-4G5cRdZ0phXzZibEBof4R4OZXO/view?usp=sharing](https://drive.google.com/file/d/1RZ1Bh-4G5cRdZ0phXzZibEBof4R4OZXO/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<a href="https://linkedin.com/in/vinod malviya" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="vinod malviya" height="30" width="40" /></a>
+<a href="[https://linkedin.com/in/vinod malviya](https://www.linkedin.com/in/vinod-malviya-b59614225/)" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="vinod malviya" height="30" width="40" /></a>
 <a href="https://www.hackerrank.com/https://www.hackerrank.com/profile/vk_malviya20021" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/hackerrank.svg" alt="https://www.hackerrank.com/profile/vk_malviya20021" height="30" width="40" /></a>
 <a href="https://www.leetcode.com/vinod25_manit" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/leet-code.svg" alt="vinod25_manit" height="30" width="40" /></a>
 <a href="https://auth.geeksforgeeks.org/user/nitian_vinod" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/geeks-for-geeks.svg" alt="nitian_vinod" height="30" width="40" /></a>
