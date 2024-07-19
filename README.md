@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **vk.malviya2002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RZ1Bh-4G5cRdZ0phXzZibEBof4R4OZXO/view?usp=drive_link](https://drive.google.com/file/d/1RZ1Bh-4G5cRdZ0phXzZibEBof4R4OZXO/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1MdITzrjK6v_RXk-Sp0WNJ_5Jk_9FPSRL/view?usp=sharing](https://drive.google.com/file/d/1MdITzrjK6v_RXk-Sp0WNJ_5Jk_9FPSRL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
